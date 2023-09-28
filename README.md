@@ -1,1 +1,0 @@
-# tugaskecil"tes projek"
